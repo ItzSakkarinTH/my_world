@@ -1,1 +1,1 @@
-check list for today
+check list for day 2
